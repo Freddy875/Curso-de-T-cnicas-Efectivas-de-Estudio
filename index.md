@@ -88,6 +88,16 @@ Además, nos mostró cómo desarrollar un método al estilo 'Modo ninja'. 🥷�
 
 Cada vez que aplico estos consejos, una felicidad inmensurable llena mi vida. Gracias, Platzi, por este viaje de aprendizaje y crecimiento personal. ¡Nunca pares de aprender! !Nunca pares de aprender! ¡A seguir aprendiendo con pasión! 🚀✨
 
+---
 
+## Planificación del estudio 
 
+Recientemente recordé detalles sobre el Santuario de la Concentración en el curso de Comprensión Lectora. 📖💡 Es un espacio fundamental que se destaca en el curso, enfocado en mejorar la capacidad de enfocarse y absorber información al leer. 🧠🎯 Este santuario es clave para potenciar la habilidad de comprensión lectora. 🌟📚
 
+---
+
+## Material de estuio y repaso
+
+Además, en el curso de Comprensión Lectora se resalta la importancia de tomar notas como un borrador inicial. ✍️ Luego, se enfatiza en darles un formato atractivo y posteriormente desarrollar mnemotécnicas y flashcards para repasar la información, lo cual se conoce como 'recuerdo activo'. 📚💡 Este método potencia la retención y ayuda a nunca olvidar lo aprendido. 🌟🧠
+
+En el curso de Comprensión Lectora se hace hincapié en tomar notas como un borrador inicial, luego darles un formato atractivo y finalmente crear mnemotecnias y tarjetas de repaso para aplicar lo que llaman 'recuerdo activo'. 📝✨ Este enfoque destaca la importancia de organizar la información de manera efectiva y emplear técnicas que fomenten un aprendizaje duradero. 🧠🔁
