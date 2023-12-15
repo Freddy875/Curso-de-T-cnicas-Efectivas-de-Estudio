@@ -47,4 +47,10 @@ Esa frase resalta una verdad profunda: "Lo que te separa de la zona del aprendiz
 
 Imaginate al tu que quiere lograr
 
-Ahora recorde la frase de Piolo Juvera en su Curso de improvisación de Platzi, "Eres genial. si que puedes. Si todos nos tratamos como genios haymayor probbilidad de que hagamos cosas geniales. Eres genial y mereces ser tratado como tal. Si que puedes y que nadie te diga que no" Puedes usarla como mantra.
+Ahora recorde la frase de Piolo Juvera en su Curso de improvisación de Platzi, "¡Eres 💡🌟 genial! Si todos nos tratamos como 💡🚀 genios, ¡hay una mayor probabilidad de hacer cosas geniales! ¡Tú eres 💫 genial y mereces ser tratado como tal! ¡Sí, tú puedes! ¡Que nadie te diga que no! 🌈🚀" Puedes usarla como mantra.
+
+🌟 "Sufres más con lo que imaginas que con lo que es la realidad - Seneca" Es increíble cómo nuestras percepciones y pensamientos pueden influir en nuestra experiencia. ✨
+
+¡Desarrolla ✍🏽 tus pensamientos creativos para reconocer los aspectos desfavorables y convertirlos en positivos! De esta manera, podrás alterar tu visión de la realidad. 🌟🧠🔄
+
+El libro 📘 'Lo Suficientemente Hombre' de Justin Baldoni nos recuerda la importancia de comenzar cada día con una afirmación poderosa: 'Soy lo suficientemente hombre'. Este mensaje no se limita solo a los hombres, ya que también se extiende a las mujeres. 💪👩‍🦰 Es una invitación a reconocer nuestra valía y fortaleza interior al despertar, recordándonos la importancia de la autoafirmación y el amor propio en nuestras vidas diarias. 🌟💭 
