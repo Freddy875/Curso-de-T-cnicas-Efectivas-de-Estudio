@@ -33,3 +33,14 @@ Como la frase en Mexico que dice no hay peor ciego que el que no quiere ver.
 
 Esa frase resalta la idea de que la mayor ceguera no es la física, sino la mental o emocional, cuando alguien se niega a ver la realidad o a aceptar la verdad, incluso cuando está frente a ellos. Puede referirse a personas que eligen ignorar evidencias, consejos o situaciones que les indican algo importante, prefiriendo mantenerse en su perspectiva o creencias actuales, a pesar de que eso les cause problemas o dificultades. Es una manera de señalar la obstinación o la negación deliberada de la realidad.
 
+---
+
+## Zona de miedo
+
+La frase que viene a mi mente es: "Cuando dejas de aprender, dejas de crecer". Es un recordatorio poderoso sobre la importancia constante del aprendizaje en nuestro desarrollo y evolución personal.
+
+Esa frase resalta una verdad profunda: "Lo que te separa de la zona del aprendizaje es la zona del miedo. 😱🚧📚". Nos recuerda cómo el temor puede convertirse en un obstáculo que nos impide explorar, experimentar y, en última instancia, aprender.
+
+
+
+
