@@ -6,6 +6,8 @@ Durante la Platzi Conf México 2023, el profesor Pablo Lomelí enfatizó la regl
 
 En un curso de IBM sobre Design Thinking aprendí que las personas toman café por la sensación reconfortante de la primera bebida caliente en la mañana, más que por el sabor. El Design Thinking se trata de empatizar con la gente y ofrecer experiencias que brinden esas sensaciones reconfortantes, como la primera bebida caliente del día.
 
+
+
 ---
 
 Establecer un objetivo de aprendizaje implica involucrarse en un proceso activo y comprometido. Plantear preguntas que tengan aplicaciones en la vida real ayuda a dirigir el aprendizaje hacia resultados prácticos. Buscar recursos relevantes y confiables es fundamental para obtener información valiosa, y saber interpretar esa información te permite extraer conclusiones significativas. Además, compartir los descubrimientos que haces puede enriquecer aún más tu comprensión y ofrecer perspectivas adicionales. 
@@ -69,6 +71,19 @@ En una TED Talk, se menciona que el estrés y la ansiedad pueden ser destructivo
 
 En 'Los Mitos del Aprendizaje', Pablo Lomeli y Piolo Juvera destacas que el fracaso no es la antitesis del exito sino parte de camino. 🧠🚫🔚 Es similar a la famosa cita de Michael Jordan 🏀: 'Mi éxito se debe a mis mil fracasos'. Este mensaje recalca cómo los errores no deben ser vistos como obstáculos, sino como escalones hacia el progreso. 💪🌟"
 
+---
+
+¡En la Platzi Conf México 2023 conocí al genial docente Pablo Lomeli​ y fue una experiencia inolvidable! No solo me hizo reír hasta morir, sino que aprendí mucho:
+
+
+✔️ 'Cerebro feliz = vida feliz'.
+✔️ La importancia de tomar descansos durante el estudio.
+✔️ Identificar y vencer la Procrastinación o ¡Síndrome del Gorila! 🦍
+✔️ La clave de tener un método de estudio.
+
+Además, nos mostró cómo desarrollar un método al estilo 'Modo ninja'. 🥷🏽🥋 La fórmula TAH se convirtió en mi secreto: ¡Toma Acción, Huevón! 💪"
+
+Cada vez que aplico estos consejos, una felicidad inmensurable llena mi vida. Gracias, Platzi, por este viaje de aprendizaje y crecimiento personal. ¡Nunca pares de aprender! !Nunca pares de aprender! ¡A seguir aprendiendo con pasión! 🚀✨
 
 
 
