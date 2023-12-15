@@ -6,14 +6,14 @@ Durante la Platzi Conf México 2023, el profesor Pablo Lomelí enfatizó la regl
 
 En un curso de IBM sobre Design Thinking aprendí que las personas toman café por la sensación reconfortante de la primera bebida caliente en la mañana, más que por el sabor. El Design Thinking se trata de empatizar con la gente y ofrecer experiencias que brinden esas sensaciones reconfortantes, como la primera bebida caliente del día.
 
-![TecnicasEfectivasDeEstudio1.jpg](TecnicasEfectivasDeEstudio1)
+![TecnicasEfectivasDeEstudio1](TecnicasEfectivasDeEstudio1.jpg)
 
 
 ---
 
 Establecer un objetivo de aprendizaje implica involucrarse en un proceso activo y comprometido. Plantear preguntas que tengan aplicaciones en la vida real ayuda a dirigir el aprendizaje hacia resultados prácticos. Buscar recursos relevantes y confiables es fundamental para obtener información valiosa, y saber interpretar esa información te permite extraer conclusiones significativas. Además, compartir los descubrimientos que haces puede enriquecer aún más tu comprensión y ofrecer perspectivas adicionales. 
 
-![TecnicasEfectivasDeEstudio2.jpg](TecnicasEfectivasDeEstudio2)
+![TecnicasEfectivasDeEstudio2](TecnicasEfectivasDeEstudio2.jpg)
 
 ---
 
