@@ -54,3 +54,9 @@ Ahora recorde la frase de Piolo Juvera en su Curso de improvisación de Platzi, 
 ¡Desarrolla ✍🏽 tus pensamientos creativos para reconocer los aspectos desfavorables y convertirlos en positivos! De esta manera, podrás alterar tu visión de la realidad. 🌟🧠🔄
 
 El libro 📘 'Lo Suficientemente Hombre' de Justin Baldoni nos recuerda la importancia de comenzar cada día con una afirmación poderosa: 'Soy lo suficientemente hombre'. Este mensaje no se limita solo a los hombres, ya que también se extiende a las mujeres. 💪👩‍🦰 Es una invitación a reconocer nuestra valía y fortaleza interior al despertar, recordándonos la importancia de la autoafirmación y el amor propio en nuestras vidas diarias. 🌟💭 
+
+---
+
+El ciclo de emociones 
+
+Al comienzo, es común sentir dudas y miedo. Es una parte natural del proceso. 🤔😨 Pero recuerda, es solo el inicio, ¡y todos pasamos por eso! 💪✨
