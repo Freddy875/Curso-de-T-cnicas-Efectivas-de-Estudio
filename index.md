@@ -57,6 +57,19 @@ El libro 📘 'Lo Suficientemente Hombre' de Justin Baldoni nos recuerda la impo
 
 ---
 
-El ciclo de emociones 
+## El ciclo de emociones 
 
 Al comienzo, es común sentir dudas y miedo. Es una parte natural del proceso. 🤔😨 Pero recuerda, es solo el inicio, ¡y todos pasamos por eso! 💪✨
+
+---
+
+## Evolución de la preocupación en ansiedad
+
+En una TED Talk, se menciona que el estrés y la ansiedad pueden ser destructivos para nuestras neuronas. 😟🧠 Este mensaje destaca cómo estas condiciones pueden impactar negativamente en nuestra salud cerebral, resaltando la importancia de cuidar nuestra mente para mantenerla en óptimas condiciones. 💡✨
+
+En 'Los Mitos del Aprendizaje', Pablo Lomeli y Piolo Juvera destacas que el fracaso no es la antitesis del exito sino parte de camino. 🧠🚫🔚 Es similar a la famosa cita de Michael Jordan 🏀: 'Mi éxito se debe a mis mil fracasos'. Este mensaje recalca cómo los errores no deben ser vistos como obstáculos, sino como escalones hacia el progreso. 💪🌟"
+
+
+
+
+
