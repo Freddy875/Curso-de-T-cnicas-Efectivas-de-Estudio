@@ -41,6 +41,10 @@ La frase que viene a mi mente es: "Cuando dejas de aprender, dejas de crecer". E
 
 Esa frase resalta una verdad profunda: "Lo que te separa de la zona del aprendizaje es la zona del miedo. 😱🚧📚". Nos recuerda cómo el temor puede convertirse en un obstáculo que nos impide explorar, experimentar y, en última instancia, aprender.
 
+---
 
+## El poder de la visualización 
 
+Imaginate al tu que quiere lograr
 
+Ahora recorde la frase de Piolo Juvera en su Curso de improvisación de Platzi, "Eres genial. si que puedes. Si todos nos tratamos como genios haymayor probbilidad de que hagamos cosas geniales. Eres genial y mereces ser tratado como tal. Si que puedes y que nadie te diga que no" Puedes usarla como mantra.
