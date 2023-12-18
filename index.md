@@ -118,6 +118,12 @@ En el curso de Comprensión Lectora se hace hincapié en tomar notas como un bor
 
 Estos pilares forman una base sólida para maximizar el rendimiento académico y el éxito en el estudio.
 
+---  
+
+# Mis metas de estudio incluyen:
+1. **Ampliar mi base de conocimientos:** Busco adquirir un espectro más amplio de información en diversas áreas.
+2. **Mejorar mi capacidad económica:** Aspiro a aumentar mis ingresos a través del aprendizaje y la aplicación de habilidades.
+3. **Aplicar conocimientos en proyectos:** Busco adquirir y aplicar conocimientos específicos para llevar a cabo proyectos con éxito.
 
 
 
