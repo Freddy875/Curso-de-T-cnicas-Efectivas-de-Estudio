@@ -125,7 +125,9 @@ Estos pilares forman una base sólida para maximizar el rendimiento académico y
 2. **Mejorar mi capacidad económica:** Aspiro a aumentar mis ingresos a través del aprendizaje y la aplicación de habilidades.
 3. **Aplicar conocimientos en proyectos:** Busco adquirir y aplicar conocimientos específicos para llevar a cabo proyectos con éxito.
 
+---
 
+**Regla Ninja:** Elabora un plan de actividades para liberar memoria y dar orden a tu vida. Una mente organizada supera mil veces a una mente dispersa.
 
 
 
