@@ -101,3 +101,30 @@ Recientemente recordé detalles sobre el Santuario de la Concentración en el cu
 Además, en el curso de Comprensión Lectora se resalta la importancia de tomar notas como un borrador inicial. ✍️ Luego, se enfatiza en darles un formato atractivo y posteriormente desarrollar mnemotécnicas y flashcards para repasar la información, lo cual se conoce como 'recuerdo activo'. 📚💡 Este método potencia la retención y ayuda a nunca olvidar lo aprendido. 🌟🧠
 
 En el curso de Comprensión Lectora se hace hincapié en tomar notas como un borrador inicial, luego darles un formato atractivo y finalmente crear mnemotecnias y tarjetas de repaso para aplicar lo que llaman 'recuerdo activo'. 📝✨ Este enfoque destaca la importancia de organizar la información de manera efectiva y emplear técnicas que fomenten un aprendizaje duradero. 🧠🔁
+
+---
+
+## Los 5 pilares del método de Estudio 
+
+1. **Sistema de organización:** Consiste en planificar y estructurar el tiempo de estudio, establecer prioridades, y tener un calendario o agenda para seguir un plan de trabajo.
+
+2. **Sistema de apuntes:** Implica tomar notas claras y organizadas durante las clases o al estudiar, destacando ideas clave y estructurando la información para facilitar la comprensión y el repaso posterior.
+
+3. **Sistema de exámenes:** Comprende la preparación específica para las evaluaciones, entendiendo el formato del examen, practicando con ejercicios similares y revisando el material relevante.
+
+4. **Sistema de repaso:** Incluye la revisión periódica de la información aprendida para reforzarla en la memoria a largo plazo, mediante técnicas como la repetición espaciada.
+
+5. **Sistema de hábitos:** Se refiere a la creación de rutinas y hábitos de estudio consistentes y efectivos, que ayuden a mantener la concentración, la motivación y la disciplina necesarias para alcanzar los objetivos académicos.
+
+Estos pilares forman una base sólida para maximizar el rendimiento académico y el éxito en el estudio.
+
+
+
+
+
+
+
+
+
+
+
