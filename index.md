@@ -210,3 +210,20 @@ Cada tipo de apunte tiene su importancia y propósito específico:
 
 Organizar estos tipos de apuntes en diferentes secciones de tu biblioteca de conocimiento puede ser útil para acceder rápidamente a la información cuando la necesites. Cada tipo de apunte tiene su valor único y contribuye a la construcción de tu base de datos de conocimiento personal.
 
+---
+
+**Regla ninja:** Estructura tus notas según tu comprensión para lograr un aprendizaje de calidad que perdure a largo plazo. Lo que aprendes por tu cuenta se queda en la memoria de manera más sólida.
+
+Cuando organizas tus notas utilizando tu propio entendimiento y perspectiva, estás involucrando activamente tu mente en el proceso de aprendizaje. Aquí hay algunas razones por las que este enfoque suele ser más efectivo:
+
+1. **Comprensión profunda:** Al interpretar y resumir la información con tus propias palabras, estás procesando y comprendiendo realmente el material.
+
+2. **Conexiones significativas:** Al relacionar nuevos conceptos con lo que ya sabes, estableces conexiones significativas que hacen que la información sea más memorable y fácil de recordar.
+
+3. **Personalización:** Al agregar ejemplos o analogías personales, estás personalizando la información, lo que facilita su retención.
+
+4. **Claridad y síntesis:** Al simplificar y resumir la información, creas una versión más clara y condensada que es más fácil de recordar y aplicar.
+
+5. **Aplicación práctica:** Al reflexionar sobre cómo la información se aplica a situaciones reales, estás preparando el terreno para su uso futuro.
+
+Cuando te esfuerzas por procesar la información por ti mismo, estás activando diferentes áreas de tu cerebro, lo que mejora significativamente la retención y la comprensión a largo plazo. Esto también facilita la recuperación de esa información cuando la necesitas en el futuro. 
