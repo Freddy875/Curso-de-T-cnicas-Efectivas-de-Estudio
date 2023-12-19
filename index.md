@@ -167,5 +167,23 @@ Nuestra memoria tiende a filtrar y olvidar información que considera irrelevant
 
 Recuerda que el objetivo principal es capturar esa información relevante en el momento para evitar que se pierda en el olvido. 
 
+---
 
+La creación de notas rápidas es una táctica poderosa para liberar tu mente de pendientes y evitar la saturación cognitiva. Aquí hay algunas estrategias para tomar notas rápidas de manera efectiva:
+
+1. **Utiliza aplicaciones de notas:** Tienes muchas opciones en tu teléfono o computadora, como Evernote, OneNote, Google Keep o simplemente la función de notas del dispositivo.
+
+2. **Toma notas en cualquier momento:** Aprovecha tu dispositivo móvil para capturar rápidamente ideas o pendientes en cualquier momento y lugar.
+
+3. **Usa listas de verificación:** Enumerar tareas o hacer listas de verificación te permite desglosar los pendientes en pasos más manejables.
+
+4. **Apunta palabras clave:** No es necesario redactar oraciones completas. A veces, unas pocas palabras clave son suficientes para recordarte lo que necesitas hacer.
+
+5. **Organiza tus notas:** Clasifica tus notas por categorías o etiquetas para encontrarlas fácilmente cuando las necesites.
+
+6. **Revisa tus notas regularmente:** No sirve de mucho tomar notas si luego no las revisas. Establece momentos en tu rutina para repasar tus notas y abordar las tareas pendientes.
+
+7. **Sé breve y claro:** La simplicidad es clave en las notas rápidas. Mantén tus notas lo más concisas y claras posible.
+
+El objetivo principal es liberar tu mente de la carga de recordar todo. Al externalizar tus pendientes en notas rápidas, puedes concentrarte mejor en el momento presente y ser más productivo. 
 
