@@ -129,8 +129,25 @@ Estos pilares forman una base sólida para maximizar el rendimiento académico y
 
 **Regla Ninja:** Elabora un plan de actividades para liberar memoria y dar orden a tu vida. Una mente organizada supera mil veces a una mente dispersa.
 
+---
 
+Nuestra mente tiende a generar ideas o recordatorios en momentos inoportunos, y a veces es difícil delegar esas tareas a largo plazo. Aquí hay algunas estrategias que pueden ayudar a lidiar con eso:
 
+1. **Captura rápida:** Ten a mano una libreta o una aplicación en tu dispositivo móvil para anotar rápidamente esas ideas o tareas que surgen de repente.
+
+2. **Lista de pendientes:** Mantén una lista de tareas pendientes para registrar todas esas ideas o recordatorios. Puedes revisar y priorizar estas tareas más tarde.
+
+3. **Revisión regular:** Dedica tiempo periódicamente para revisar esa lista de tareas pendientes. Esto te permitirá evaluar y organizarlas de acuerdo con su importancia y urgencia.
+
+4. **Planificación diaria:** Al comienzo o al final de cada día, elige las tareas más importantes para el día siguiente. Esto te permite empezar el día con un objetivo claro y evita que las tareas se pierdan en el caos diario.
+
+5. **Técnicas de organización:** Usa métodos como GTD (Getting Things Done) de David Allen, que se centra en capturar, aclarar y organizar todas las tareas y compromisos.
+
+6. **Crear un espacio propicio:** Tener un espacio organizado y libre de distracciones puede ayudar a enfocar la mente y reducir la aparición repentina de tareas.
+
+7. **Mindfulness:** Practicar la atención plena puede ayudar a entrenar la mente para estar más presente en el momento actual, lo que a su vez puede reducir la intrusión de tareas aleatorias.
+
+El objetivo es tener un sistema confiable para capturar y gestionar estas tareas que surgen espontáneamente, permitiéndote enfocarte en el presente sin perder de vista lo que es importante para ti.
 
 
 
