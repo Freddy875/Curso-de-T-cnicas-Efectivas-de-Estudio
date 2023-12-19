@@ -187,3 +187,26 @@ La creación de notas rápidas es una táctica poderosa para liberar tu mente de
 
 El objetivo principal es liberar tu mente de la carga de recordar todo. Al externalizar tus pendientes en notas rápidas, puedes concentrarte mejor en el momento presente y ser más productivo. 
 
+---
+
+**Sistema de apuntes:** Construye una biblioteca de conocimiento, que es una base de datos maestra que organice todo tu saber.
+
+Cada tipo de apunte tiene su importancia y propósito específico:
+
+1. **Apuntes de clases:**
+   - Estos son registros de lo aprendido durante las clases, conferencias o charlas.
+   - Suelen incluir conceptos clave, explicaciones del profesor, ejemplos relevantes y detalles importantes discutidos en el aula.
+   - Pueden ser útiles para repasar y reforzar lo aprendido en clase, así como para aclarar dudas posteriores.
+
+2. **Apuntes de libros:**
+   - Son notas tomadas mientras lees un libro, ya sea físico o digital.
+   - Incluyen resúmenes de capítulos, citas importantes, puntos clave, ideas originales del autor y reflexiones personales sobre el contenido.
+   - Estos apuntes ayudan a recordar la información clave del libro y a capturar tus propias interpretaciones y conexiones con otros conocimientos.
+
+3. **Apuntes de trabajo e investigaciones:**
+   - Estos apuntes están relacionados con proyectos, informes, investigaciones o tareas específicas.
+   - Pueden contener datos recolectados, resultados de experimentos, referencias bibliográficas, análisis de datos, conclusiones y recomendaciones.
+   - Sirven como registro del proceso y los hallazgos de tu trabajo, facilitando la revisión y la documentación para futuros proyectos similares.
+
+Organizar estos tipos de apuntes en diferentes secciones de tu biblioteca de conocimiento puede ser útil para acceder rápidamente a la información cuando la necesites. Cada tipo de apunte tiene su valor único y contribuye a la construcción de tu base de datos de conocimiento personal.
+
