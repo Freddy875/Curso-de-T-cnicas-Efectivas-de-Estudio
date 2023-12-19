@@ -149,7 +149,23 @@ Nuestra mente tiende a generar ideas o recordatorios en momentos inoportunos, y 
 
 El objetivo es tener un sistema confiable para capturar y gestionar estas tareas que surgen espontáneamente, permitiéndote enfocarte en el presente sin perder de vista lo que es importante para ti.
 
+---
 
+Nuestra memoria tiende a filtrar y olvidar información que considera irrelevante o menos importante. Por eso, capturar esa información en el momento es crucial. Algunas formas de evitar que se pierda esa información son:
+
+1. **Tomar notas inmediatas:** Cuando surja algo importante o una idea, anótala enseguida en un cuaderno, en tu teléfono o en cualquier dispositivo que tengas a mano.
+
+2. **Grabar mensajes de voz:** Si estás en movimiento o no puedes escribir, utilizar la grabación de voz en tu teléfono es una excelente manera de registrar rápidamente esa información.
+
+3. **Crear recordatorios:** Utiliza aplicaciones o alarmas en tu teléfono para recordar tareas o ideas importantes en momentos específicos del día.
+
+4. **Mantener listas de tareas:** Tener una lista de tareas pendientes o una agenda te permite capturar y organizar la información importante para no olvidarla más adelante.
+
+5. **Asociación de ideas:** Relacionar la información nueva con algo que ya conozcas puede ayudar a tu cerebro a retenerla por más tiempo.
+
+6. **Repetición y revisión:** Repasar la información importante de manera regular refuerza la retención en la memoria a largo plazo.
+
+Recuerda que el objetivo principal es capturar esa información relevante en el momento para evitar que se pierda en el olvido. 
 
 
 
