@@ -248,6 +248,25 @@ Para aplicar esta regla, simplemente lee tus apuntes y convierte las ideas clave
 
 ---
 
+Esta regla ninja también se aplica a los flashcards, ya que al crearlos, repasas la información. Las preguntas que elaboras en las tarjetas te ayudan a retener la información de manera efectiva.
+
+Los flashcards son una herramienta excelente que se alinea perfectamente con la regla ninja de extraer preguntas para mejorar la retención y la comprensión. Al crear flashcards con preguntas y respuestas, obtienes múltiples beneficios:
+
+1. **Refuerzo de la memoria:** Al escribir las preguntas y respuestas en los flashcards, estás repasando y reforzando la información en tu memoria.
+
+2. **Recuperación activa:** Al revisar las tarjetas, practicas la recuperación activa de la información, lo que fortalece la memoria a largo plazo.
+
+3. **Autoevaluación:** Puedes usar los flashcards para autoevaluarte, comprobando tu conocimiento sobre un tema específico y enfocándote en las áreas que necesitas repasar más.
+
+4. **Portabilidad y conveniencia:** Los flashcards son fáciles de llevar contigo y puedes revisarlos en cualquier momento, lo que te brinda flexibilidad en tu estudio.
+
+5. **Personalización:** Al crear tus propios flashcards, puedes adaptarlos a tu estilo de aprendizaje y centrarlos en las áreas que consideres más importantes o difíciles.
+
+La combinación de la creación activa de preguntas con el formato de flashcards es una estrategia poderosa para mejorar el aprendizaje y la retención. Además, existen aplicaciones y plataformas en línea que te permiten crear y practicar con flashcards de manera digital, lo que añade otra capa de conveniencia. 
+
+
+---
+
 <iframe width="560" height="315" src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" frameborder="0" allowfullscreen></iframe>
    
 
