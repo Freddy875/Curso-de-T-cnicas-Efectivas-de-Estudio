@@ -227,3 +227,17 @@ Cuando organizas tus notas utilizando tu propio entendimiento y perspectiva, est
 5. **Aplicación práctica:** Al reflexionar sobre cómo la información se aplica a situaciones reales, estás preparando el terreno para su uso futuro.
 
 Cuando te esfuerzas por procesar la información por ti mismo, estás activando diferentes áreas de tu cerebro, lo que mejora significativamente la retención y la comprensión a largo plazo. Esto también facilita la recuperación de esa información cuando la necesitas en el futuro. 
+
+---
+
+<iframe width="560" height="315" src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" frameborder="0" allowfullscreen></iframe>
+   
+
+
+
+
+
+
+
+
+
