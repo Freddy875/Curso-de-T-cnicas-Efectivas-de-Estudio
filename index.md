@@ -267,8 +267,7 @@ La combinación de la creación activa de preguntas con el formato de flashcards
 
 ---
 
-<iframe width="560" height="315" src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" frameborder="0" allowfullscreen></iframe>
-   
+<iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
 
