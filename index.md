@@ -230,8 +230,28 @@ Cuando te esfuerzas por procesar la información por ti mismo, estás activando 
 
 ---
 
+**Regla Ninja:** Generar preguntas a partir de tus apuntes aumenta tu retención de información y te permite crear una guía de estudio anticipada.
+
+¡Una regla ninja poderosa! Extraer preguntas clave de tus apuntes no solo mejora la retención, sino que también te permite crear una guía de estudio efectiva. Aquí te explico cómo funciona y por qué es tan útil:
+
+1. **Refuerza la comprensión:** Al formular preguntas sobre la información que has registrado, estás obligándote a procesarla más profundamente, lo que refuerza tu comprensión.
+
+2. **Enfoca tu atención:** Identificar las ideas clave y convertirlas en preguntas te ayuda a enfocar tu estudio en los conceptos más importantes y relevantes.
+
+3. **Fomenta la práctica activa:** Responder a tus propias preguntas activa tu memoria y te ayuda a practicar la recuperación activa de la información.
+
+4. **Prepara para evaluaciones:** Al adelantar una guía de estudio con preguntas, estás preparándote para futuras evaluaciones, ya que estás practicando las mismas habilidades que podrían evaluarte.
+
+5. **Efecto de repaso:** Cuando repasas estas preguntas en diferentes momentos, estás reforzando la información en tu memoria a largo plazo.
+
+Para aplicar esta regla, simplemente lee tus apuntes y convierte las ideas clave en preguntas relevantes. Estas preguntas pueden ser de opción múltiple, de respuesta corta o abiertas, dependiendo del tipo de información y de cómo desees practicar su recuperación. Esta técnica no solo te ayudará en la retención a largo plazo, sino que también mejorará tu capacidad para comprender y aplicar el conocimiento. ¿Suele funcionar bien para ti esta estrategia de extracción de preguntas?
+
+---
+
 <iframe width="560" height="315" src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" frameborder="0" allowfullscreen></iframe>
    
+
+---
 
 
 
