@@ -264,6 +264,33 @@ Los flashcards son una herramienta excelente que se alinea perfectamente con la 
 
 La combinación de la creación activa de preguntas con el formato de flashcards es una estrategia poderosa para mejorar el aprendizaje y la retención. Además, existen aplicaciones y plataformas en línea que te permiten crear y practicar con flashcards de manera digital, lo que añade otra capa de conveniencia. 
 
+---
+
+**Regla Ninja:** Un espacio de trabajo centralizado reúne tus pensamientos en un solo lugar, eliminando la resistencia para estudiar y tomar acción.
+
+Un espacio de trabajo dedicado y organizado es clave para eliminar distracciones y fomentar la concentración. Aquí hay algunas razones por las que un espacio de trabajo bien establecido es fundamental:
+
+1. **Foco y concentración:** Un espacio designado para el estudio o trabajo ayuda a entrenar tu mente para asociar ese lugar con la concentración y la productividad.
+
+2. **Reducción de distracciones:** Al tener un espacio específico, puedes controlar mejor las distracciones externas y mantener el enfoque en las tareas importantes.
+
+3. **Organización:** Un espacio ordenado y organizado te permite acceder fácilmente a tus materiales de estudio, libros, notas y recursos necesarios.
+
+4. **Estímulo para la acción:** Al sentarte en tu área de trabajo designada, estás enviando una señal a tu mente de que es hora de concentrarse y tomar acción.
+
+5. **Rutina y hábitos:** Establecer un espacio fijo para trabajar o estudiar forma parte de una rutina que puede mejorar la consistencia y la efectividad.
+
+Para crear un espacio de trabajo efectivo, considera:
+
+- **Iluminación adecuada:** Luz natural o una buena iluminación artificial pueden mejorar la concentración y reducir la fatiga visual.
+  
+- **Silla y escritorio cómodos:** Una silla ergonómica y un escritorio adecuado contribuyen a una postura cómoda para largos periodos de estudio o trabajo.
+
+- **Materiales y suministros:** Mantén a mano todos los materiales necesarios, como bolígrafos, papel, libros y cualquier otro recurso que puedas necesitar.
+
+- **Orden y limpieza:** Mantener tu espacio de trabajo limpio y ordenado puede reducir distracciones y promover la concentración.
+
+Un espacio de trabajo dedicado es como el santuario para la concentración mental y la productividad. 
 
 ---
 
