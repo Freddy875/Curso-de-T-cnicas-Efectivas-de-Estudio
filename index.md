@@ -294,6 +294,14 @@ Un espacio de trabajo dedicado es como el santuario para la concentración menta
 
 ---
 
+**Regla Ninja 🥷🏽:** Un plan de estudio bien estructurado es como un arma contra la procrastinación. Establecer objetivos claros, dividir el tiempo en secciones y tener una ruta definida para el aprendizaje ayuda a vencer la tendencia a posponer las tareas. Cuando cada paso está trazado, se vuelve más fácil seguir adelante y evitar caer en el ciclo de la procrastinación. 
+
+📚 Detener el aprendizaje es detener el crecimiento,
+🌱 La búsqueda del conocimiento alimenta el crecimiento personal,
+🚀 ¡La sed de aprender impulsa la evolución constante!
+
+---
+
 <iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
