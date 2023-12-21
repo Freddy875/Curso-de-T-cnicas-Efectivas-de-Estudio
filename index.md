@@ -333,6 +333,10 @@ Al encontrar maneras de hacer el estudio más interactivo, relevante y desafiant
 
 ---
 
+**⚡La forma más efectiva de repasar es intentar responder una pregunta sin leer la respuesta antes.**
+
+---
+
 <iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
