@@ -302,6 +302,10 @@ Un espacio de trabajo dedicado es como el santuario para la concentración menta
 
 ---
 
+Regla Ninja 🥷🏽: Las técnicas de estudio son la cura contra el olvido al estudiar cualquier tema. 
+
+---
+
 <iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
