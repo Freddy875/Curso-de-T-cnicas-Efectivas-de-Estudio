@@ -275,6 +275,30 @@ El concepto de aprendizaje continuo puede adoptar diferentes formas: desde tomar
 
 ---
 
+### Factores que provocan el olvido:
+
+El olvido puede ocurrir por diversas razones, y las que mencionas son muy relevantes:
+
+1. **Estudiar información incorrecta:** Si lo que estudias es incorrecto desde el principio, es probable que se quede grabado en tu memoria de forma errónea. Verificar la fuente y la veracidad de la información es esencial para evitar este problema.
+
+2. **Repetir, mecanizar y memorizar sin razonar:** Si te limitas a repetir información sin comprenderla o razonarla, es probable que se almacene en la memoria a corto plazo y se olvide fácilmente. Es importante comprender el significado detrás de la información para retenerla a largo plazo.
+
+3. **Estudiar y no repasar:** La revisión regular es esencial para la retención a largo plazo. Estudiar algo una vez y no volver a repasar puede llevar al olvido, ya que la memoria se beneficia de la repetición espaciada para consolidar la información.
+
+Combatir el olvido implica abordar estas razones mediante estrategias efectivas de estudio:
+
+- **Comprender antes de memorizar:** Asegúrate de entender el material antes de intentar memorizarlo.
+  
+- **Aplicar técnicas de estudio activo:** Enfócate en comprender y aplicar la información en lugar de simplemente memorizarla. Elabora preguntas, ejemplos y analogías para comprender mejor.
+
+- **Espaciar la repetición:** Planifica sesiones de repaso regulares para reforzar la memoria a largo plazo.
+
+- **Verificar la información:** Utiliza fuentes confiables y verifica la exactitud de la información que estás estudiando.
+
+El olvido es natural y parte del proceso de la memoria humana, pero adoptar estrategias de estudio efectivas puede ayudar a minimizar su impacto.    
+
+---
+
 <iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
