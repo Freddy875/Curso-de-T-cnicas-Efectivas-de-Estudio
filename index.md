@@ -325,6 +325,14 @@ Al encontrar maneras de hacer el estudio más interactivo, relevante y desafiant
 
 ---
 
+### Técnicas de estudio
+
+1. **Explicación propia:** Explicar con tus propias palabras lo que estudias aumenta tu comprensión del tema.
+2. **Recuerdo activo:** Evaluarte a ti mismo con preguntas sobre lo que has estudiado promueve un recuerdo más efectivo.
+3. **Repetición espaciada:** Repasar frecuentemente un tema a lo largo del tiempo hasta dominarlo contribuye a retener la información de manera más sólida.
+
+---
+
 <iframe src="https://freddy875.github.io/Comprensi-n-Lectora-Retiene-lo-que-Aprendes/" width="800" height="600" frameborder="0"></iframe>   
 
 ---
